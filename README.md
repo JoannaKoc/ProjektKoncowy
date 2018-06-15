@@ -1,0 +1,2 @@
+# ProjektKoncowy
+# Projekt na zajęcia
